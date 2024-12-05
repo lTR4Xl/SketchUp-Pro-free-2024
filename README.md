@@ -1,3 +1,5 @@
+![Preview Image](Screenshot_1-min-min.png)
+
 SketchUp Pro free 2024 
 Tip
 
